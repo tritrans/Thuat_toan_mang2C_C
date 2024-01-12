@@ -1,0 +1,2 @@
+# Thuat_toan_mang2C_C
+Thuat_toan_mang2C_C
